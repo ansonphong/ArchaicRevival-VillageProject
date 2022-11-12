@@ -197,34 +197,32 @@ The way of a Civilization is made by these primary means:
 Building a city is a long term project that requires the participation of many mutually shared interests and ability to thrive in the given location. Cities vary a lot in their technology and lifetyle.
 
 
+---
+---
+
 ### NOTES:
 
-1. Surival - How to build a fire. 
+Surival - How to build a fire. 
 And not one to damage the earth. We count ourselves post 
-
-From address, 
 
 Drawing from all cultures, all wisdom, 
 
-Four Requisites.
-- Notice computer hardware and smartphones is not one of the requisites. People did just fine without them for millenia.
-
-2. Community
-- Villiage structure - 100-144
+- Community
+  - Villiage structure - 100-144
   - Diversity vs. Interest Groups
 - Symbols for Social Signalling
-- Federation
+- Federation Protocols of Mutual Agreement
+  - The universal law shows how tribes band to support one another in The Law of non interference
 
 - Ritual
   - Offerings
   - Gatherings
   - Mating across villiages
     - Some villiages may choose to adopt cross pollination rituals
-    - No guidlines are to be put forth by the federation
-
+  - No guidlines are to be put forth by the federations such that would violate the soverignty of individual freedoms within their field of non-interference pattern
 
 #### Preindustrial Japan
-- Temples - Homes - Villages - Towns - Cities - Castles
+- Temples - Bridges - Homes - Lifestyle - Villages - Towns - Cities - Castles - Art
 
 
 #### The Fifth World
